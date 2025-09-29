@@ -20,7 +20,7 @@ Putain, c'était jouissif. Regarde-moi ça, un desosseur qui vient de se faire e
 (Je dois l'avouer,moi-même j'ai pris du plaisir à regarder *range le papier toilette )
 
 " Bruit de morceaux humains qui tombent sur le sol " On aurait dit de l'art tellement c'était beau... On y est la sortie de la ville.                                                      
-( Nos deux protagistes arrivèrent au bord d'un préscicpise donnant une vue imprenable sur NightCity )
+( Nos deux protagistes arrivèrent au bord d'un précipice donnant une vue imprenable sur NightCity )
 
 Enfin le grand final est arrivé, es-tu prêt ? ... 3 ... 2 ... 1 " Bruit d'explosion et d'effondrement "                                                                                    
 ( La tour d'Arasaka s'effondre la nuit sombre et brillante de flammes )

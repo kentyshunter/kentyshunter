@@ -49,10 +49,10 @@ C'est ton homme qui te parle NIGHTCITY. Rejoignez-moi pour un autre jour dans no
 
 - Edgerunner
 - Netrunner
-- Legends
+- Legend
 - Choom
 - unkhnow
 - 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
 - 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
 - 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
---> I khnow who you are :)
+- Sorry you got hacked ... I khnow who you are :)
